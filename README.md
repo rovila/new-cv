@@ -1,1 +1,1 @@
-# new-cv
+# about ]me project
